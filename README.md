@@ -1,1 +1,2 @@
-# erins_first_discord_bot
+# discord-porn-bot
+For you friendos. 
