@@ -1,2 +1,2 @@
 # discord-porn-bot
-For you friendos. 
+For you friendos :) 
